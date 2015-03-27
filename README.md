@@ -1,4 +1,4 @@
 gitsoftsun.github.io
 ====================
-
-what I think, idea and so on
+way to explore, way to extreme!
+what I think, idea and so on!
